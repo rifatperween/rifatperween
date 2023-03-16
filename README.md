@@ -7,7 +7,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1py2AsL9QyG6oCON_0Sr2X8IgdNDdKIN0/view?usp=sharing](https://drive.google.com/file/d/1py2AsL9QyG6oCON_0Sr2X8IgdNDdKIN0/view?usp=sharing)
 
-- ⚡ Me time **Love watching web-series**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
