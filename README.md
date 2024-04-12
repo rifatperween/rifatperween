@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **rifatperween02@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1py2AsL9QyG6oCON_0Sr2X8IgdNDdKIN0/view?usp=sharing](https://drive.google.com/file/d/1py2AsL9QyG6oCON_0Sr2X8IgdNDdKIN0/view?usp=sharing)
+
 
 
 
